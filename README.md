@@ -1,0 +1,2 @@
+# lordasistan
+kişisel sitem
